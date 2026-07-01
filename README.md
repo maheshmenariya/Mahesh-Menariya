@@ -153,11 +153,11 @@ React • WordPress • Hostinger • SEO
 
 📧 **Email:** menariyam745@gmail.com
 
-💼 **LinkedIn:** YOUR_LINKEDIN
+💼 **LinkedIn:** www.linkedin.com/in/mahesh-menariya-b1455b2ba
 
 🌐 **Portfolio:** Coming Soon
 
-💻 **GitHub:** https://github.com/YOUR_USERNAME
+💻 **GitHub:** [https://github.com/maheshmenariya]
 
 ---
 
